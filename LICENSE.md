@@ -1,4 +1,4 @@
-
+Experience re:rangers x like never before with elite Scripts for re:rangers x, the #1 Script. Includes invisibility and auto-upgrade for unbeatable
 
 
 
